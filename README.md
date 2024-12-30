@@ -1,1 +1,1 @@
-# Developer-Certificates
+Dear GitHub, VisionOS is a legit development tool to aid developers in their work, we do not participate in selling cracked accounts, fraud, or malware of any kind. Please gather probable cause before taking action on us over false reports. VisionOS prohibits and does not condone the following topics: Cheating, Hacking, Malicious Content, Product Manipulation, System Manipulation, and anything deemed in violation of GitHubs Terms-of-Service and License Agreements.
